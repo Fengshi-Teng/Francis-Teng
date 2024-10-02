@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Francis-Teng
+- 👋 Hi, I’m @Fengshi-Teng
 - 👀 Interested in CS+art/history/travel/books, trying to create something fun
 - 🌱 Currently studying in MPCS, UChicago
 - 🏠 Used to be an Architecture student and still love it
