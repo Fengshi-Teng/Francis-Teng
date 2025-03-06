@@ -9,7 +9,7 @@ My passion for technology drives me to explore cutting-edge tools and emerging t
 
 Outside of work, I have a deep love for visual arts, music, and films, having spent over 10 years studying fine art and learning creative storytelling. I’m also a sports enthusiast, from fitness, running, hiking to leading my undergraduate university’s Water Sports Club and competing on the Dragon Boat Team.
 
-I take pride in being a highly self-motivated and efficient learner, always planning ahead and pushing myself to deliver high-quality work ahead of deadlines.
+I take pride in being a highly self-motivated and efficient learner, always planning ahead and pushing myself to deliver high-quality work days ahead of deadlines.
 
 I’m currently pursuing my Master’s in Computer Science at the University of Chicago, actively seeking opportunities to apply my creative and technical skills in real-world challenges. I’m especially interested in roles related to software development, creative technology, and data-driven innovation.
 
