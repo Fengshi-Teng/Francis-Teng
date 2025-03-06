@@ -7,7 +7,7 @@ I’m a creative problem solver with a unique journey transitioning from archite
 
 My passion for technology drives me to explore cutting-edge tools and emerging trends, and I believe coding itself is a form of art — a way to turn imagination into reality.
 
-Outside of work, I have a deep love for visual arts, music, and films, having spent over 10 years studying fine art and learning creative storytelling. I’m also a sports enthusiast, from fitness, running, hiking to leading my university’s Water Sports Club and competing on the Dragon Boat Team.
+Outside of work, I have a deep love for visual arts, music, and films, having spent over 10 years studying fine art and learning creative storytelling. I’m also a sports enthusiast, from fitness, running, hiking to leading my undergraduate university’s Water Sports Club and competing on the Dragon Boat Team.
 
 I take pride in being a highly self-motivated and efficient learner, always planning ahead and pushing myself to deliver high-quality work ahead of deadlines.
 
